@@ -6,7 +6,7 @@
 3. [https://ai-panda.xyz](https://ai-panda.xyz/login?invite_code=34137c47)       （UI设计很好，用的很舒服）
 4. http://gptdog.online/
 5. chatgpt.com
-6. https://ai.minihuo.com/#/chat/1002
+6. https://ai.minihuo.com/#/chat/1002 
 7. https://freechatgpt.lol/
 8. https://chatai.lra.cn/#/home/chat
 9. https://chat.haoce.com/
